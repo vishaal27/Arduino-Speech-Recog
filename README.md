@@ -3,3 +3,4 @@
 PPT: 
 1) Speaker (blind applications)
 2) Smart Watch
+ABBE CHAKKE 
